@@ -6,4 +6,4 @@
 
 기말고사 예상문제
 - 자료는 NYCTaxi
-- 
+- sfkfseghwakegjbse
